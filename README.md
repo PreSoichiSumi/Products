@@ -9,6 +9,6 @@
 動画は[こちら](https://youtu.be/niVjt6qk_GY)(2010年)
 
 ## 成果物2ーツアーガイドロボットの開発
-製作物は[こちら]()<br>
+製作物は[こちら](https://youtu.be/niVjt6qk_GY)<br>
 
-動画は[こちら]()<br>
+動画は[こちら](https://youtu.be/XdlzJG6U57Y)<br>
